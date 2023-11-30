@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @869621380
-- 👀 I’m interested in yunahwn
+- 👀 I’m interested in yuanshen
 - 🌱 I’m currently learning yuanshen
 - wan ran sin wander
 
